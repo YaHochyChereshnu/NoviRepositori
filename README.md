@@ -1,2 +1,2 @@
 # NoviRepositori
-`#0969DA`
+![](https://github.com/YaHochyChereshnu/NoviRepositori.git/rick-roll.gif)
