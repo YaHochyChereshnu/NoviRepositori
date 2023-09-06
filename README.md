@@ -1,2 +1,2 @@
 # NoviRepositori
-![](https://github.com/YaHochyChereshnu/NoviRepositori.git/rick-roll.gif)
+![](https://github.com/YaHochyChereshnu/NoviRepositori/rick-roll.gif)
