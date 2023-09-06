@@ -1,2 +1,2 @@
 # NoviRepositori
-![](https://github.com/YaHochyChereshnu/NoviRepositori/blob/main/rick-roll.gif)
+![](https://media.tenor.com/_4YgA77ExHEAAAAd/rick-roll.gif)
